@@ -1,4 +1,4 @@
-Characterisics of 46126 transistors around age and the world :)
+Characteristics of 46126 transistors around age and the world :)
 
 My apologies to the original author of these files who may recognize himself. But I can no longer find his link, nor his name... apparently from Eastern European countries.
 
